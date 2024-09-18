@@ -1,0 +1,2 @@
+# grandpasha
+Grand Pasha Güncel 
